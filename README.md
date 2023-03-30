@@ -2,4 +2,4 @@
 
 Nicolas Sebastian Moreno
 
-Tengo 22 años, estoy cursando la tecnicatura en progrmacion, me gusta ir al cine y trbajo en una estacion de servicio.
+Tengo 22 años, estoy cursando la tecnicatura en progrmacion, me gusta ir al cine y trabajo en una estacion de servicio.
